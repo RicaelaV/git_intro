@@ -1,1 +1,2 @@
-Ricaela Villanueva 
+Ricaela Villanueva
+villanri@oregonstate.edu
